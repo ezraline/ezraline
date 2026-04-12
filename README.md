@@ -9,7 +9,7 @@ however, i am working on my own visual novel.
 ⓘ made1vvvonder<br>
 &nbsp;&nbsp;&nbsp; art comms: closed ((unless friends<br>
 <br>
-## pony town
+## extra
 c+h friends only<br>
 yes i always sit there 💔<br>
 i've been here since the library update came out<br>
