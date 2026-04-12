@@ -14,3 +14,5 @@ c+h friends only<br>
 yes i always sit there 💔<br>
 i've been here since the library update came out<br>
 gg if you see me move ᶻ 𝗓 𐰁 <br>
+
+<img width="636" height="310" alt="image" src="https://github.com/user-attachments/assets/3713e5f3-61ba-4a47-b7bf-03b48217e616" />
