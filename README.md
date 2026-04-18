@@ -10,9 +10,11 @@ however, i am working on my own visual novel.
 &nbsp;&nbsp;&nbsp; art comms: closed ((unless friends<br>
 <br>
 ## extra
-c+h friends only<br>
-yes i always sit there 💔<br>
+c+h friends + friends of friends <br>
 i've been here since the library update came out<br>
-gg if you see me move ᶻ 𝗓 𐰁 <br>
-
+yes i sometimes move. shocking and devastating i know im sorry 💔<br>
+gg if you do see me move though. esp outside the library ᶻ 𝗓 𐰁 <br>
+i recently updated my skin, yes its still me<br>
+<br>
+you can ask me to stand or open my eyes but i dont promise i will.
 <img width="636" height="310" alt="image" src="https://github.com/user-attachments/assets/3713e5f3-61ba-4a47-b7bf-03b48217e616" />
