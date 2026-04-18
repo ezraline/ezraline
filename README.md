@@ -12,7 +12,7 @@ however, i am working on my own visual novel.
 c+h friends + friends of friends <br>
 i've been here since the library update came out<br>
 yes i sometimes move. shocking and devastating i know im sorry 💔<br>
-gg if you do see me move though. esp outside the library ᶻ 𝗓 𐰁 <br>
-i recently updated my skin, yes its still me<br>
+gg if you do see me move though. esp outside the library<br>
+i recently updated my skin, yes its still me ᶻ 𝗓 𐰁 <br>
 <br>
 <img width="636" height="310" alt="image" src="https://github.com/user-attachments/assets/3713e5f3-61ba-4a47-b7bf-03b48217e616" />
