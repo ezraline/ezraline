@@ -1,14 +1,17 @@
 hello<br>
 ⤷ pls whisper if you want me to see your msg more easily, im not always on tab!!!<br>
-‎ ✦︎ ♯ i go by Ezra but feel free to call me Peri; Periwinkle
+‎ ✦︎ ♯ i go by Ezra but feel free to call me Peri; Periwinkle<br>
+### SEND ME STUFF ON MY STRAWPAGE !!!!!!!<br>
+it will be put on there eventually
 
-to clarify: Periwinkle is a character of [NomNomNami](https://nomnomnami.com/), not my oc<br>
-however, i am working on my own visual novel.
 
 ★ ┆ intp t<br>
 ⓘ made1vvvonder<br>
 <br>
 ## extra
+to clarify: Periwinkle is a character of [NomNomNami](https://nomnomnami.com/), not my oc<br>
+however, i am working on my own visual novel.
+
 c+h friends + friends of friends <br>
 i've been here since the library update came out<br>
 yes i sometimes move. shocking and devastating i know im sorry 💔<br>
