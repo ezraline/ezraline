@@ -1,8 +1,12 @@
+## RECENTLY POSTED GIMMICKS ON STRAWPAGE !!!
+
 hello<br>
 ⤷ pls whisper if you want me to see your msg more easily, im not always on tab!!!<br>
 ‎ ✦︎ ♯ i go by Ezra but feel free to call me Peri; Periwinkle<br>
+
 ### SEND ME STUFF ON MY STRAWPAGE !!!!!!!<br>
 it will be put on there eventually
+
 
 
 ★ ┆ intp t<br>
